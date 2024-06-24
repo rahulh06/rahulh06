@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am a student
+Hi👋, I'm Rahul V
 
 
 ## 🌐 Socials:
